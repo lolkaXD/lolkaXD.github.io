@@ -1,2 +1,0 @@
-# lolkaXD.github.io
-anontip
